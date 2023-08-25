@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dhaneshraj1980@gmail.com**
 
-- ⚡ Fun fact **Im Alien**
+- ⚡**Im Alien**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
